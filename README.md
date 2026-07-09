@@ -1,4 +1,4 @@
-# ![profile ni supergrizz](images.jpg) BHEN ANTHONY M. HINLAYAGAN
+# ![profile ni supergrizz](https://i.pinimg.com/originals/5f/23/3c/5f233c44f2c8e1f7741f461b7bda96c5.jpg?nii=t) BHEN ANTHONY M. HINLAYAGAN
 
 ## About Me:
 
